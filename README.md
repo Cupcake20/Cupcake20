@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Cupcake20
-- 👀 I’m interested in art science and anytipe of music
+- 👀 I’m interested in art, science, and anytipe of music
 - 🌱 I’m currently learning math science ELA social studies Korean and Music
 - 💞️ I’m looking to collaborate on a song or art prject
 - 📫 How to reach me Email mariela.gomezmuy@palpkschools.org
